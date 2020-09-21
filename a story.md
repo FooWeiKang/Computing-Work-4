@@ -9,6 +9,6 @@ changed much either the closer I looked. He scrutinised my face simultaneously a
 mischief.
 Then, he burst into laughter,saying, "Oh what do we have here?I see your aspirations of becoming an astronaut has come true,huh?"Then, he burst into another round of laughter.I
 rolled my eyes and mocked him,"And what have you become,professional weightlifter?""Oh",he said,"I got tired of lifting weights,so I decided to lift shops and I recently lifted 
-that 12 carat diamond next door, I doubt you could even touch that."I laughed and my mind wandered off to a better time, both for me and for him.The memories of all the wacky
+that 12 carat diamond next door, I doubt you could even touch that."I laughed and my mind wandered off to a better time, for both of us.The memories of all the wacky
 moments we had in class,the way he always helped me in math (which predicted the reason I could not be an astronaut,apparently, math is important", and that time we executed the 
-great "heist" of Dunman.Then, my chief prodded me in my chest, waking me from the good signs.
+great "heist" of Dunman. But then he became worse off, as I slowly turned to the 'good' side. Which was the reason he bullied me, since he thought I 'betrayed' him. Then, my chief prodded me in my chest, waking me from the good signs.
